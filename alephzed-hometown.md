@@ -11,3 +11,6 @@
 ### Things to avoid
 - Don't eat the sushi, it might be bait
 - Don't pick apples from the orchard
+
+### Where to shop
+- The Dollar General Store
