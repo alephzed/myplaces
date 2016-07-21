@@ -6,3 +6,5 @@
 ### Fun things to do
 
 ### Things to avoid
+
+### Where to shop
