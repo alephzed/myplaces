@@ -2,6 +2,7 @@
 
 ### Where to eat
 - Golden Corral
+- McDonalds
 
 ### Fun things to do
 - Cow Tippin'
