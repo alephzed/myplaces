@@ -10,3 +10,7 @@
 - Water ski on Lake Thunderbird
 
 ### Things to avoid
+
+- Freshmen
+- Greek Row
+- The Bursar's office

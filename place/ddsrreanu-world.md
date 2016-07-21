@@ -2,12 +2,16 @@
 
 ### Where to eat
 
-Many places
+More food to eat.
 
 ### Fun things to do
 
-Many fun things
+More fun things to do.
 
 ### Things to avoid
 
 Wars, chaos, pollution
+
+
+
+Adding more notes to the world. Adding more and more notes.
