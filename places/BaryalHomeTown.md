@@ -2,4 +2,4 @@
 
 ### Where to eat
 ### things to have fun
-### Things to avoid
+### Things to avoid- where
